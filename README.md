@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on a client project<br>💬 Ask me about gym, cars, or gaming<br>📝 Computer Science Graduate<br>💰 Looking for work
+🔭 I’m currently working on a client project<br>💬 Ask me about gym, cars, or gaming<br>📝 Computer Science Graduate<br>💰 Retail Assistant
 
 
 ## 🌐 Socials:
